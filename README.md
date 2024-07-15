@@ -7,7 +7,7 @@ This is the strongest password in the world?
 
 I found a website that let you upload large files.
 
-Please note that ithas my email so don't do anything stupid.
+Please note that it has my email so don't do anything stupid.
 
 Here is the version to the 1GB Password.
 
