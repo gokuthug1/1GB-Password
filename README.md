@@ -5,6 +5,8 @@ I have a 1GB version but Github doesn't support a file larger than 25MB :(
 
 This is the strongest password in the world?
 
-I found a website that let you upload large files. 
+I found a website that let you upload large files.
+
 Here is the version to the 1GB Password.
-s
+
+https://www.transferxl.com/download/00vRtxPpZ1GR1F
